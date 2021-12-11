@@ -1,6 +1,6 @@
 My name is Thuy M Huynh
 
-I am a CS student at University of Missouri - Kansas City who also have a degree in Management.
+I am currently a CS student at University of Missouri - Kansas City who also have a degree in Management at Keuka College, NY.
 
 I crave knowledge, I like to challenge myself and I enjoy doing new things. My new journey in the next 3 years is granduate MS in Computer Science.
 
